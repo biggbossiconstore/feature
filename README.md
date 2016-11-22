@@ -1,0 +1,2 @@
+# feature
+a distinctive attribute or aspect of something. safety features like dual air bags synonyms: characteristic, attribute, quality, property, trait, hallmark, trademark, aspect, facet, factor, ingredient, component, element, theme, peculiarity, idiosyncrasy, quirk, X factor, wow factor a newspaper or magazine article or a broadcast program devoted to the treatment of a particular topic, typically at length. a feature on Detroit's downtown fishery synonyms: article, piece, item, report, story, c
